@@ -1,0 +1,1 @@
+Estou achando o curso muito bom, aprendendo muito, mas muito conteúdo novo. Com algumas dificuldades ainda.
